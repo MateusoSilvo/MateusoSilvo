@@ -1,0 +1,4 @@
+- 👋 Opa, eu sou o Mateus.
+- 👀 Eu curto jogar videogame, ouvir música, limpar a casa e tô tentando aprender a cozinhar.
+- 🌱 Tô aprendendo a programar, estudo na Etec de Barueri.
+- 🎶 Ultimamente eu tô ouvindo muito Lagum, recomendo inclusive.
